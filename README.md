@@ -1,2 +1,2 @@
-# Shri_
+# Shri
 This is my portfolio
