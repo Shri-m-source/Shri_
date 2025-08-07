@@ -1,12 +1,12 @@
-shri krishna
+shri krishna!
 
-shri rama
+shri rama!
 
-This documentation describes how to use the Pavel robotic toothbrush.
+This documentation describes how to use the Pavel robotic toothbrush!
 
-Note that this toothbrush is not safe to use for children, adults, or pets!!!!
+Note that this toothbrush is not safe to use for children, adults, or pets!
 
-ohhhhh
+ohhhhh!
 
 
-this is the next version of tags!!!@@@
+this is the next version of tags!
